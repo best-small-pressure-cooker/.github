@@ -11,7 +11,7 @@
 
 <p>Looking for the best small pressure cooker? A compact pressure cooker is perfect for small kitchens, quick meals, and efficient cooking. In this guide, we will explore the top small pressure cookers, their features, and how to choose the right one.</p>
 
-[**✅ Buy No at Amazon**](https://amzn.to/4hhTtLz)
+[**✅ Buy Now at Amazon**](https://amzn.to/4hhTtLz)
 
 <h2>Why Choose a Small Pressure Cooker?</h2>
 
@@ -19,7 +19,7 @@
 
 <h2>Top 5 Best Small Pressure Cookers</h2>
 
-[**✅ Buy No at Amazon**](https://amzn.to/4hhTtLz)
+[**✅ Buy Now at Amazon**](https://amzn.to/4hhTtLz)
 
 <ul>
     <li><strong>Instant Pot Duo Mini 3-Quart</strong>: A versatile 7-in-1 electric pressure cooker, great for small households.</li>
